@@ -31,6 +31,10 @@ this little volume of Hermetic Philosophy is reverently dedicated.
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png)
+
+---
+
 ## Introduction
 
 We take great pleasure in presenting to the attention of students and investigators of the Secret Doctrines this little work based upon the world-old Hermetic Teachings. There has been so little written upon this subject, notwithstanding the countless references to the Teachings in the many works upon occultism, that the many earnest seekers after the Arcane Truths will doubtless welcome the appearance of this volume.
