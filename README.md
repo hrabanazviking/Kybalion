@@ -508,3 +508,13 @@ In the above axiom, the Hermetists teach that the great work of influencing one'
 > "THE ALL is MIND; The Universe is Mental." -- The Kybalion.
 
 ---
+
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/image-23-RuneForgeAI%20(2).jpg](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/image-23-RuneForgeAI%20(2).jpg)
+
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/IMG_0407%20(2).jpeg](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/IMG_0407%20(2).jpeg)
+
+---
+
+
