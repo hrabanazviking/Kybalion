@@ -57,6 +57,10 @@ In this little work we have endeavored to give you an idea of the fundamental te
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784037580537.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784037580537.png)
+
+---
+
 ## Chapter I. The Hermetic Philosophy
 
 > "The lips of wisdom are closed, except to the ears of Understanding." -- The Kybalion.
