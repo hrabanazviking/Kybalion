@@ -10,6 +10,10 @@
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784034266627.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784034266627.png)
+
+---
+
 ## Dedication
 
 To **HERMES TRISMEGISTUS**  
