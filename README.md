@@ -31,7 +31,7 @@ this little volume of Hermetic Philosophy is reverently dedicated.
 
 ---
 
-![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png)
+[https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png)
 
 ---
 
