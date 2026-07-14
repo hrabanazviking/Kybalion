@@ -61,7 +61,7 @@ In this little work we have endeavored to give you an idea of the fundamental te
 
 ---
 
-[Kybalion_ShareGPT_AI_Training_Dataset_1](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/Kybalion_ShareGPT_AI_Training_Dataset_1.jsonl)
+[Kybalion ShareGPT AI Training Dataset 1](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/Kybalion_ShareGPT_AI_Training_Dataset_1.jsonl)
 
 ---
 
