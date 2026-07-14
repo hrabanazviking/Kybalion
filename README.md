@@ -31,7 +31,7 @@ this little volume of Hermetic Philosophy is reverently dedicated.
 
 ---
 
-[https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png)
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784038135875.png)
 
 ---
 
@@ -61,7 +61,7 @@ In this little work we have endeavored to give you an idea of the fundamental te
 
 ---
 
-![Kybalion_ShareGPT_AI_Training_Dataset_1](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/Kybalion_ShareGPT_AI_Training_Dataset_1.jsonl)
+[Kybalion_ShareGPT_AI_Training_Dataset_1](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/Kybalion_ShareGPT_AI_Training_Dataset_1.jsonl)
 
 ---
 
