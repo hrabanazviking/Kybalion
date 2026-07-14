@@ -1,3 +1,9 @@
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/ChatGPT%20Image%20Jul%2014%2C%202026%2C%2009_54_44%20AM.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/ChatGPT%20Image%20Jul%2014%2C%202026%2C%2009_54_44%20AM.png)
+
+---
+
 # The Kybalion
 
 *A Study of The Hermetic Philosophy of Ancient Egypt and Greece*
