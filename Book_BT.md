@@ -52,6 +52,10 @@ Each card’s design is a deliberate arrangement of symbols whose keys are: the 
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784308466704.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784308466704.png)
+
+---
+
 ### 0 — The Fool  
 **Letter:** Aleph (א). **Element:** Air. **Path:** 11th Path, joining Kether (Crown) and Chokmah (Wisdom).  
 **Spiritual Title:** The Primum Mobile, the Breath of Life.
