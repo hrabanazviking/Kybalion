@@ -1,3 +1,9 @@
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784306947487.pngj](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784306947487.png)
+
+---
+
 # The Holographic Emerald Tablet
 
 ---
