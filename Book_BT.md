@@ -78,6 +78,10 @@ A youth clad in motley garments of yellow, green, and red walks with his head up
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784309009442.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784309009442.png)
+
+---
+
 ### I — The Magician  
 **Letter:** Beth (ב). **Planet:** Mercury. **Path:** 12th Path, joining Kether and Binah.  
 **Spiritual Title:** The Magus of Power, the Manipulator of the Astral Light.
