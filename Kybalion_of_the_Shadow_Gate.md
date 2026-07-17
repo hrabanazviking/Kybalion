@@ -1,3 +1,9 @@
+---
+
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784306427535.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784306427535.png)
+
+---
+
 **THE KYBALION OF THE SHADOW GATE**
 
 *A Witch’s Book of the Dead*
