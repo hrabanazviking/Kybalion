@@ -105,6 +105,10 @@ A robed figure stands before a cubic altar, his right hand raising a wand toward
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784309911925.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784309911925.png)
+
+---
+
 ### II — The High Priestess  
 **Letter:** Gimel (ג). **Planet:** Moon. **Path:** 13th Path, joining Kether and Tiphereth.  
 **Spiritual Title:** The Priestess of the Silver Star, the Guardian of the Unconscious.
