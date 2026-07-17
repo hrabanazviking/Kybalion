@@ -130,6 +130,10 @@ A seated woman, robed in flowing blue and white, her face serene and turned part
 
 ---
 
+![https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784310413103.png](https://raw.githubusercontent.com/hrabanazviking/Kybalion/refs/heads/main/1784310413103.png)
+
+---
+
 ### III — The Empress  
 **Letter:** Daleth (ד). **Planet:** Venus. **Path:** 14th Path, joining Chokmah and Binah.  
 **Spiritual Title:** The Daughter of the Mighty Ones, the Gate of Heaven.
